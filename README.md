@@ -22,4 +22,4 @@ The ASUS ZenFone Max Pro (M2) (codenamed _"X01BD"_) is mid-range smartphone from
 
 ## Device picture
 
-![ASUS ZenFone Max Pro (M2)](https://www.91-img.com/gallery_images_uploads/4/d/4d65932627e5ef4a7e0ba8d9c1734447ed143f89.jpg)
+![ASUS ZenFone Max Pro (M2)](https://www.asus.com/media/global/gallery/dTz7tvXehcymsJAc_setting_xxx_0_180_end_368.png)
